@@ -2,4 +2,4 @@
 
 We welcome your feedback! 
 
-you can contact us by email: edward9941@gmail.con
+You can contact us by email: edward9941@gmail.com
